@@ -15,5 +15,5 @@ Fun facts...
 --->
 
 Contact me:
-[Linked in](https://www.linkedin.com/in Vikas Sharma)|[Instagram](https://www.instagram.com/Vikas_bhardwaj0610)
+[Linked in](https://www.linkedin.com/ Vikas Sharma)|[Instagram](https://www.instagram.com/Vikas_bhardwaj0610)
 
